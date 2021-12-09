@@ -1,29 +1,43 @@
-# Peanut Butter Jelly Sandwich
+# Peanut Butter-Jelly Sandwich
 
-When you are hungry and can't think of something quick and tasty? The all-time perfect snack meal is here to the rescue. This delicious sandwich is the best way to start the day with a healthy dose of protein and healthy fats. It's also a great way to end the day with a healthy meal of protein and healthy fats.
+In this article we will demonstrate how to make a peanut butter jelly sandwich which is the perfect snak meal for those on a budget or in a rush.
 
-## Ingredients
+### Let’s look at how to prepare Peanut Butter-Jelly Sandwich:
+ 1. Ingredients Required
+ 2. Primary
+ 3. Peanut butter
+ 4. Jelly
+ 5. Bread
+ 6. Butter Knife
+ 7. Plates 
+ 
+**Optional** 
 
-This delicacy is made using the following ingredients:
+ 1. Disposable gloves (for serving and handling food)
+ 2. Tablespoon (for measurement)
+## Steps
+Let’s put on the gloves for an added sanitary factor and start with the process of making the  peanut butter jelly sandwich.
 
-- Peanut butter
-- Jelly
-- Bread
 
-You'll also need a butter knife to make this sandwich, a few plates to serve, and lastly, a tablespoon for measurement.
+`Step 1` - Take a slice of bread and place it on the plate side by side.
 
-## Recipe
+`Step 2` - Open the peanut butter and jelly while removing the seal if it's sealed.
+Stir the peanut butter if necessary to make a smooth mixture and distribute the oil that has settled at the corner.
 
-1. Take a slice of bread and place it on the plate side by side.
-2. Open the peanut butter and jelly and remove the seal if it's sealed
-And Stir the peanut butter if necessary to make a smooth mixture and distribute the oil that is settled at the corner.
-3. Get a sufficient amount of peanut butter on the knife and spread it evenly on one side of  the bread.
-4. Get a sufficient amount of jelly onto a knife(Approximately about 1 tablespoon) and spread it to the other side of the bread evenly.
-5. Combine the two slices of bread and try to put one on top of the other so it is evenly matched on both sides so the sandwich is more appetizing and less messy.
-6. Cut off all the four sides of the bread.
-   **Note**: it is optional for the people who don't like crust.
-7. Cut it into half diagonally or half down the middle depending on your preference.
-8. Clean the workspace, put everything in the place and put the sandwich on a serving plate.
-9. Serve the sandwich and enjoy the sandwich.
+`Step 3` - Get sufficient amount of peanut butter on the knife and spread it evenly, on one side of  the bread
 
-**Enjoy your sandwich and let me know how it tasted in the comments!**
+`Step 4` - Get sufficient amount of jelly onto the knife(approximately 1 tablespoon) and spread it to the other side of the bread evenly.
+
+`Step 5` - Combine the two slices of the bread and place one on top of the other so it is evenly matched on both sides so the sandwich is more appetizing and less messy.
+
+`Step 6` - Cut off all the four sides of the bread. This step is optional for the people who don't like crust 
+
+`Step 7` - Cut it into half diagonally or half down the middle depending on your preference.
+
+`Step 8` - Clean the workspace, put everything on the place and put the sandwich on a serving plate.
+
+`Step 9` - Serve the sandwich and enjoy!
+
+
+
+
